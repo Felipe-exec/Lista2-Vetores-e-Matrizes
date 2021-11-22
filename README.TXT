@@ -1,3 +1,3 @@
-Aqui também constam alguns exercícios feitos pelo Matheus Eloy Franco (IFSULDEMINAS Campus Machado)
+Aqui constam alguns exercícios feitos pelo Matheus Eloy Franco (IFSULDEMINAS Campus Machado)
 Se eu não estiver enganado, foram os seguintes exercícios: 3, 4, 5, 18, 21, 22, 35.
 Continuarei a upar mais exercícios resolvidos da Lista 2, sejam eles feitos pelo professor ou por mim, isso conforme meu tempo permitir..
